@@ -28,7 +28,7 @@ HANDMAGIC™ empowers artisans selling on Etsy, Amazon Handmade, and other marke
 
 ## 📋 License & Trademark
 
-© 2024 HANDMAGIC™. All rights reserved.
+© 2025 HANDMAGIC™. All rights reserved.
 
 HANDMAGIC and the HANDMAGIC logo are trademarks of their respective owner.
 
