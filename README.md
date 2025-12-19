@@ -34,4 +34,4 @@ HANDMAGIC and the HANDMAGIC logo are trademarks of their respective owner.
 
 ---
 
-*First published: December 19, 2024*
+*First published: December 19, 2025*
